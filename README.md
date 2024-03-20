@@ -1,6 +1,6 @@
 # Tannel中继网络服务官网地址
 
-最新地址：[dytannel.com](https://dytannel.com/auth/register?code=4i6D)
+最新地址：[dytannel.com](https://tannel.xn--sjqr9mozc.com/auth/register?code=4i6D)
 
 ## Tannel中继网络服务介绍
 
